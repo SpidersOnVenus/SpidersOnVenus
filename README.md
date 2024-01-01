@@ -1,0 +1,5 @@
+- The Name's Spider
+- Trying to make music w/ a high school education (atm)
+- Into Minecraft, Mario, and Undertale, 
+- If you get my username we're cool
+- Find me on discord: flowering_death
